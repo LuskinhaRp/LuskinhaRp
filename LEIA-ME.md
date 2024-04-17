@@ -1,0 +1,5 @@
+- 👋 Olá, Sou Lucas mas podem me chamar de Luskinha
+- 👀 Atualmente estou interessado em programação
+- 🌱 Estou tentando e me esforçando para aprender programação e começar a trabalhar
+- 📫 Podem me procurar via discord: Luskinha ou via telefone: +55 27981175897
+- ⚡ Curiosidades sobre mim: faço aniverário em 09/03, sou muito gentil, as vezes sou muito estressado ou as vezes muito calmo/feliz, nunca meio termo e sou bastante bastante paciente com as pessoas.
